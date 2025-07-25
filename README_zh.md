@@ -37,7 +37,7 @@ Vuforia plugins (Archive)
 
 16. ##### 11.2.4    [Download Click](https://caiyun.139.com/w/i/2oRhaqUGnXUf3)   提取码:xqq1
 
-17. ##### 11.3.4    <a href="https://caiyun.139.com/m/i/2oRhbxZCoBuwy" target="_blank">Download Click</a>  提取码:j8ra
+17. ##### 11.3.4    [Download Click](https://caiyun.139.com/w/i/2oRhbxZCoBuwy)   提取码:j8ra
 
 
 ### WEBService 
