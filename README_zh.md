@@ -23,7 +23,7 @@ Vuforia plugins (Archive)
 
 9. ##### 10.7       [Download Click](https://caiyun.139.com/m/i?2m90cAU3X4Slb)   提取码:b30n
 
-10. ##### 10.12      [Download Click](https://caiyun.139.com/m/i?2m90c5RPemh8y)   提取码:v6z0
+10. ##### 10.12      [Download Click](https://caiyun.139.com/m/i?2m90c5RPemh8y)  提取码:v6z0
 
 11. ##### 10.13     [Download Click](https://caiyun.139.com/m/i?2m90bZRmtRp49)   提取码:h35q
 
@@ -34,6 +34,10 @@ Vuforia plugins (Archive)
 14. ##### 11.0.14   [Download Click](https://caiyun.139.com/m/i?2m90bZRmrwp6f)   提取码:26er
 
 15. ##### 11.1      [Download Click](https://caiyun.139.com/m/i?2mknYsCKNq8m1)   提取码:f7lp
+
+16. ##### 11.2.4    [Download Click](https://caiyun.139.com/w/i/2oRhaqUGnXUf3)   提取码:xqq1
+
+17. ##### 11.3.4    [Download Click](https://caiyun.139.com/w/i/2oRhbxZCoBuwy)   提取码:j8ra
 
 
 ### WEBService 

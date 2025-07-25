@@ -23,7 +23,7 @@ Vuforia plugins (Archive)
 
 9. ##### 10.7       [Download Click](https://caiyun.139.com/m/i?2m90cAU3X4Slb)   Extraction code:b30n
 
-10. ##### 10.12      [Download Click](https://caiyun.139.com/m/i?2m90c5RPemh8y)   Extraction code:v6z0
+10. ##### 10.12      [Download Click](https://caiyun.139.com/m/i?2m90c5RPemh8y)  Extraction code:v6z0
 
 11. ##### 10.13     [Download Click](https://caiyun.139.com/m/i?2m90bZRmtRp49)   Extraction code:h35q
 
@@ -35,7 +35,9 @@ Vuforia plugins (Archive)
 
 15. ##### 11.1      [Download Click](https://caiyun.139.com/m/i?2mknYsCKNq8m1)   Extraction code:f7lp
 
+16. ##### 11.2.4    [Download Click](https://caiyun.139.com/w/i/2oRhaqUGnXUf3)   Extraction code:xqq1
 
+17. ##### 11.3.4    [Download Click](https://caiyun.139.com/w/i/2oRhbxZCoBuwy)   Extraction code:j8ra
 ### WEBService 
 
 ##### WEBService    [Download Click](https://caiyun.139.com/m/i?2m90cbSfyqJr8)   Extraction code:0zkb
